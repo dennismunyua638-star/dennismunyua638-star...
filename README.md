@@ -31,7 +31,7 @@ Goals
 How to Reach Me
 
 - GitHub: https://github.com/Dennismunyua
-- Email: your-email@example.com
+- Email: dennismunyua638@gmail.com@example.com
 
 Fun Fact
 
